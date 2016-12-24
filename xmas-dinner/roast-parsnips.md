@@ -4,10 +4,10 @@
 
 ## Ingredients
 
-2kg parsnips
-½ a bunch of fresh thyme
-2 tablespoons runny honey
-olive oil
+- 2kg parsnips
+- ½ a bunch of fresh thyme
+- 2 tablespoons runny honey
+- olive oil
 
 ## Preparation
 
