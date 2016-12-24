@@ -4,10 +4,10 @@
 
 ## Ingredients
 
-2 tbsp rapeseed or sunflower oil
-1 large pack of cocktail sausages (48)
-3 tbsp clear honey
-3 tbsp wholegrain or Dijon mustard
+- 2 tbsp rapeseed or sunflower oil
+- 1 large pack of cocktail sausages (48)
+- 3 tbsp clear honey
+- 3 tbsp wholegrain or Dijon mustard
 
 ## Preparation
 
