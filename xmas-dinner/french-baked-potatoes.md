@@ -27,4 +27,4 @@ Ingredients are now ready for layering in a large oven-proof dish.
 Repeat steps 4 - 8 until all ingredients have been used up.
 
 9. Cover dish with cling-film
-10. Place in microwave and cook on high until soft and a fork will pierce the mixture very easily.
+10. Place in microwave and cook on high until soft and a fork will pierce the mixture very easily. I put this on for 25 minutes and then check if it needs another 5.
