@@ -37,7 +37,8 @@ OR
 
 ## Dredging
 
-1. Use a big bowl to put the buttermilk (or milk + vinegar) into along with the shot of vodka and two egg whites
+1. Use a big bowl to put the buttermilk (or milk + vinegar) into along with the shot of vodka and two egg whites.
+   As with soda bread, buttermilk is what you really want here. Use the substitute if you can't get hold of any.
 2. Beside it set up a food bag containing the flour mix and remaining half of the spices
 3. And finally, beside these set up a wire rack on which to set the dredged chicken.
 4. Working with 1 piece of chicken at a time, dip in the buttermilk mixture to completely coat it and then throw it in the bag and shake until completely.
