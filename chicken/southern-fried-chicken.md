@@ -46,7 +46,8 @@ OR
 
 ## Cooking
 
-1. The chicken is best fried in dutch oven - I use a big cast iron pot. Put in enough oil such that it goes about half-way up the chicken when all the pieces are placed in.
-2. I hear the oil over a medium-high heat. It needs to get to the point were a piece of the batter dropped into the oil will bubble and float up the top. Usually takes about 10 mins.
+1. The chicken is best fried in a dutch oven - I use a big cast iron pot. Put in enough oil such that it goes about half-way up the chicken when all the pieces are placed in.
+2. I heat the oil over a medium-high heat. It needs to get to the point were a piece of the batter dropped into the oil will bubble and float up the top. Usually takes about 10 mins, but keep an eye on it depending on your hob.
 3. Place 3 pieces of the chicken in the oil and fry, using tongs to rotate the pieces every 3 to 4 minutes and adjusting the heat as needed.
-4. Transfer the chicken to another rack or baking sheet (lined with kitchen paper). Let the chicken drain and cool for about 5/10 mins before serving.
+4. Transfer the chicken to another rack or baking sheet (lined with kitchen paper). 
+5. Let the chicken drain and cool for about 5/10 mins before serving.
