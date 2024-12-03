@@ -32,7 +32,7 @@ Fairly hot, but not overly so! Also makes a great chilli mayo.
 
 1. Step 1 is to decide how hot you want this to be, which comes down to how many seeds you're going to leave in and also the balance of chillis. I've recommended 50/50 for both - but if you add more Long Dried Chillis and more seeds then this will increase the heat.
 2. Under a medium heat, toast the chillis and the Sichuan pepper in a dry pan. This only needs a few minutes and you need to watch carefully that things don't start to burn. This is just to toast the chillis and peppercorns and release their oils.
-3. Pour in the vinegar followed by the water. All all the ingredients witht he exception of the lemon juice and coriander.
+3. Pour in the vinegar followed by the water. Then add all the ingredients with the exception of the lemon juice and coriander.
 4. This is where we put the lid on the pan and leave it on a low heat for several hours. This is to completely re-hydrate the chillis in the process.
 5. Once this process is complete, take the lid off and add in the lemon juice and the coriander. Let it all wilt down into the sauce.
 6. Leave the sauce to cool down a bit and then it's time to thoroughly blend it all up. The amount of the liquid you retain at this point is going to determine how thick the final sauce is.
