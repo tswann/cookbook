@@ -1,6 +1,6 @@
 # Tom's Hot Sauce
 
-This is my favourite homemade hot sauce, which I've basically come up with through using ingrediants from Sichuan that I like. 
+This is my favourite homemade hot sauce, which I've basically come up with through using ingredients from Sichuan that I like. 
 
 I love Sichuan spices and this is a heavy dose of both types of dried chilli which are popular in Sichuan cooking and also the Sichuan pepper corns, which are essential.
 
