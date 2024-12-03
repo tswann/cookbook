@@ -4,7 +4,9 @@ This is my favourite homemade hot sauce, which I've basically come up with throu
 
 I love Sichuan spices and this is a heavy dose of both types of dried chilli which are popular in Sichuan cooking and also the Sichuan pepper corns, which are essential.
 
-You can make this with any dried chillis really, but it's going to taste different depending on the variety. These are quite rich and smokey.
+You can make this with any dried chillis really, but it's going to taste different depending on the variety. 
+
+These are quite rich, citrusy (which I add lemon to bring out a bit more) and a hint of smokiness.
 
 I've linked the exact types that I use below.
 
