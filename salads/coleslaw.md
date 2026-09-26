@@ -6,6 +6,7 @@
 - 1 carrot grated
 - 75g mayo (or just add until you like the look of it)
 - 1tbsp white wine vinegar
+- tbsp honey
 - 1/4 tsp Coleman's mustard 
 - 50g pecans (or other nuts) roughly chopped
 - salt and white pepper
