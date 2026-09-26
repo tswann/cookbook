@@ -1,4 +1,4 @@
-# Coleslaw
+bun# Coleslaw
 
 ## Ingredients 
 
@@ -13,6 +13,6 @@
 
 ## Method
 
-1. Mix mayo, mustard and vinegar in the bowl first
+1. Mix mayo, honey, mustard and vinegar in the bowl first
 2. Then add the veg and nuts
 3. Mix well
